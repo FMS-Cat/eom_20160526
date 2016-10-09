@@ -1,4 +1,6 @@
-# Everyday One Motion - 20160526 "LIFE SUCKS"  
+# Everyday One Motion - 20160526  
+
+"LIFE SUCKS"  
 
 ![](20160526.gif)  
 
